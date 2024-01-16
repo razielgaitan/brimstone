@@ -20,6 +20,6 @@ Nos encantaría contar con tu colaboración para hacer crecer y mejorar nuestras
 
 ## Contacto
 
-¿Tienes preguntas o ideas? ¡Conversemos! Puedes ponerte en contacto con nosotros a través de ivangaitan.kp@gmail.com.
+¿Tienes preguntas o ideas? ¡Conversemos! Puedes ponerte en contacto con nosotros a través de solutionsbrimstone@gmail.com.
 
 ¡Gracias por unirte a Brimstone en esta emocionante aventura de desarrollo personalizado!
